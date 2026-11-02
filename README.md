@@ -1,1 +1,0 @@
-# KSIMLaba1
